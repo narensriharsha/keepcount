@@ -34,3 +34,5 @@ Flexible Input Methods:
 Download KeepCount today and experience distraction-free Counting.
 
 Happy Counting!
+
+Privacy Policy and Terms : https://www.termsfeed.com/live/2a73ffc4-1c63-4955-b042-b92ea2f15f72
